@@ -1,1 +1,1 @@
-Luxuary-rentals in new yorkcity
+Luxuary-rentals in New York City
